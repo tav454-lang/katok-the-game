@@ -1,1 +1,0 @@
-# katok-the-game
